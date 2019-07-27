@@ -24,7 +24,7 @@ Para acessar o xvideos red quase de graça a melhor opção é o site [contaspor
 Brazzers é um dos melhores sites pornos do mundo seu conteudo é de alta qualidade e conta com as maiores estrelas pornos da atualidade. Com muitos videos de coroas com rapazes faz um enorme sucesso na internet. Sua assinatura custa $29,90 dolares por mês o que na cotação atual gira em torno de R$110
 
 ## Como acessar o Brazzers por um valor MAIS BARATO?
-O [Contas Porno](https://www.contasporno.com "Contas Porno") também oferece acesso premium ao Brazzers pelo mesmo valor de R$19,90 é um combo com mais de outros 5 sites famosos.
+O Contas Porno  também oferece acesso premium ao Brazzers pelo mesmo valor de R$19,90 é um combo com mais de outros 5 sites famosos.
 
 ## Conta RealityKings
 RealityKings é um famoso site porno ficou conhecido no brasil principalmente pela serie Mike in Brazil que conta com lindas e gostosas mulheres brasileiras fazendo sexo. Seu preço e de **29,90 dolares** mais de **R$100**
